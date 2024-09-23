@@ -41,7 +41,7 @@
 *https://main.webbizcraft.shop* <br>
 
 **시연 영상** <br>
-[1차 출시](https://drive.google.com/file/d/10inKFQjI8fsM7oqXdLQUS53h_G6_GTfK/view?usp=sharing) <br>
+[1차 출시](https://drive.google.com/file/d/13Parp6U6SFfVuRE2C5RmwHO9JnTKGurs/view?usp=drive_link) <br>
 
 ---
 ### 📍 간단 소개
